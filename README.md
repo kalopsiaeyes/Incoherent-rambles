@@ -8,6 +8,4 @@
 
 -> I’m never checking up on you anymore. that’s a lie, i don’t think it’s logical to be this petty. but I like to tell myself that i wont.
 
--> So that’s how it feels to be a placeholder, the people you actually care for appear and suddenly I’m down a few ranks
-
 -> I am a bad person. but I guess being treated like one is too much for me 
